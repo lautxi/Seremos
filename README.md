@@ -1,2 +1,2 @@
 # Seremos
-No tengo idea. Empecemos con la prueba del cobayo
+No tengo idea. Comencemos con la prueba del cobayo
